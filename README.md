@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Eofortun
+- 👀 I’m interested in play with projects
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on any interest thing :)
+- 📫 How to reach me, send a e-mail to eofortur@gmail.com
